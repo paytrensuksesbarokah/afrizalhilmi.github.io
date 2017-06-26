@@ -29,29 +29,40 @@ Anda Masih Bingung? Tak perlu khawatir! Gabung saja terlebih dahulu. Nantipun se
 
 Intinya ketika bergabung di TREN-I & melakukan pembelian lisensi paytren bersama kami, Anda akan mendapatkan banyak manfaat dan keuntungan, diantaranya :
 
-1. Dapat lisensi atau akses aplikasi PAYTREN full version u/ memprmudah pembayaran2 kebutuhan sehari2 hanya dgn menggunakan HP. Praktis, effisien, hemat biaya & waktu.
+* Dapat lisensi atau akses aplikasi PAYTREN full version u/ memprmudah pembayaran2 kebutuhan sehari2 hanya dgn menggunakan HP. Praktis, effisien, hemat biaya & waktu.
 
 ![alt text](https://www.paytrenleader.com/wp-content/uploads/2015/01/ATM-PINTAR.png "ATM-PINTAR")
 
-2. Dapat poin perdana yg bisa dituker dgn produk-produk yang disediakan TRENI seperti Herbal Habspro, TRENI POWER penghemat BBM, Buku-buku UYM, Smartphone, dan lain-lain sesuai paket yang dipilih.
+* Dapat poin perdana yg bisa dituker dgn produk-produk yang disediakan TRENI seperti Herbal Habspro, TRENI POWER penghemat BBM, Buku-buku UYM, Smartphone, dan lain-lain sesuai paket yang dipilih.
 
 ![alt text](https://www.paytrenleader.com/wp-content/uploads/2014/06/produk-ro-1.jpg "produk-ro-1")
 
-3. Bisa berbelanja di mercant-mercant atau sesama mitra yg bergabung dgn tren-i, tanpa uang cash, hanya melalui HP. Dapat poin & cashback dari setiap belanja.
+* Bisa berbelanja di mercant-mercant atau sesama mitra yg bergabung dgn tren-i, tanpa uang cash, hanya melalui HP. Dapat poin & cashback dari setiap belanja.
 
 ![alt text](https://www.paytrenleader.com/wp-content/uploads/2015/01/belanja.jpg "belanja")
 
-4. Dapat akses PAYTREN ACADEMY (Pendidikan Digital Paytren) dari Ustadz Yusuf Mansur & Team.
+* Dapat akses PAYTREN ACADEMY (Pendidikan Digital Paytren) dari Ustadz Yusuf Mansur & Team.
 
-5. Berkesempatan mendapatkan penghasilan hingga ratusan juta bahkan miliaran rupiah, dgn ikut memasarkan PAYTREN atau membuka pendaftaran TREN-I. Bonus2nya banyak banget... Apalagi kl Anda ambil paket yang tinggi (Ada 5 Paket Lisensi yang disediakan TRENI, akan dijelasinkan di menu Cara Daftar).
+![alt text](https://www.paytrenleader.com/wp-content/uploads/2015/01/paytren-Academy1.png "paytren-Academy1")
 
-6. Tentunya bisa nambah teman, orang-orang yang positif, visioner & Agamis. Bisa berkumpul dan belajar bareung saling membantu dan menginspirasi.
+* Berkesempatan mendapatkan penghasilan hingga ratusan juta bahkan miliaran rupiah, dgn ikut memasarkan PAYTREN atau membuka pendaftaran TREN-I. Bonus2nya banyak banget...
 
-7. Dapat web replika profesional untuk membantu mengembangkan bisnis Paytren/TRENI. Memungkinkan Anda mendapatkan penghasilan secara otomatis. (Khusus daftar disini)
+![alt text](https://www.paytrenleader.com/wp-content/uploads/2014/06/uang.jpg "uang")
 
-8. Dapat bimbingan dan pelatihan bisnis via online & social media. Inilah yg membedakan gabung dengan team kami dengan yang lain.
+* Tentunya bisa nambah teman, orang-orang yang positif, visioner & Agamis. Bisa berkumpul dan belajar bareung saling membantu dan menginspirasi.
 
-9. Coming soon teknologi sosmed "paytren messenger" semacam whatsapp, Paytren Market Place seperi Lazada, OLX dan lain-lain. Dan masih banyak lagi yg lainnya, insyaAllah sangat bermanfaat bagi kita semua...
+![alt text](https://www.paytrenleader.com/wp-content/uploads/2014/06/komunitas.jpg "komunitas")
+
+* Dapat web replika profesional untuk membantu mengembangkan bisnis Paytren/TRENI. Memungkinkan Anda mendapatkan penghasilan secara otomatis. (Khusus daftar disini)
+
+![alt text](https://www.paytrenleader.com/wp-content/uploads/2014/06/tampilan-replika-1.jpg "tampilan-replika-1")
+
+* Dapat bimbingan dan pelatihan bisnis via online & social media. Inilah yg membedakan gabung dengan team kami dengan yang lain.
+
+![alt text](https://www.paytrenleader.com/wp-content/uploads/2015/01/Facebook-marketing.jpg "Facebook-marketing")
+
+* Coming soon teknologi sosmed "paytren messenger" semacam whatsapp, Paytren Market Place seperi Lazada, OLX dan lain-lain. Dan masih banyak lagi yg lainnya, insyaAllah sangat bermanfaat bagi kita semua...
+
 
 Menarik banget kan? Gabung saja terlebih dahulu. Kunci Posisi. Jangan sampai ketinggalan atau keduluan lagi oleh yang lain. Nantipun seiring berjalannya waktu akan semakin faham jika belajar sambil praktek.
 
