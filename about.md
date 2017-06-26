@@ -4,12 +4,13 @@ title: About
 permalink: /about/
 ---
 
-Some information about you!
+PAYTREN MILLIONAIRE TEAM (PMT)
 
 ### More Information
 
-A place to include any other types of information that you'd like to include about yourself.
+DREAM TEAM (TRENI) PAYTREN UST. YUSUF MANSUR SUKSES BISNISNYA BERKAH HIDUPNYA.
 
 ### Contact me
 
-[email@domain.com](mailto:email@domain.com)
+[triafrizalhilmi@gmail.com](mailto:triafrizalhilmi@gmail.com)
+#### 0823 2006 7466
