@@ -5,33 +5,34 @@ title: CARA KERJA
 ***
 Untuk menjalankan TRENI sangatlah mudah. Bisa dikerjakan oleh siapapun, kapanpun dan dimanapun. Berikut ini 5 Langkah Sederhana untuk menjalankan bisnis TRENI, yang akan memberikan gambaran betapa sederhananya menjalankan bisnis TRENI ini. Yuk kita mulai….
 
-* BERGABUNG DI KOMUNITAS TRENI
-***
+1. BERGABUNG DI KOMUNITAS TRENI
+
 
 Hal pertama yang harus Anda lakukan tentunya bergabung di komunitas TRENI. Caranya dengan membeli KP25 (25rb) dan Lisensi Paytren (325rb per lisensi). Tersedia paket lisensi PAYTREN yaitu BASIC (1 Lisensi), dan Titanium (31 Lisensi). Penjelasan lebih detail tentang paket-paket lisensi ada di menu Cara Daftar.
 
-* IKUTI BIMBINGAN DAN PANDUAN BISNIS PAYTREN
-***
+2. IKUTI BIMBINGAN DAN PANDUAN BISNIS PAYTREN
+
 
 Setelah melakukan pendaftaran dengan pembelian lisensi. Anda dapat mengikuti pembelajaran di member area paytrenleader.com dan mendapatkan bimbingan melalui forum belajar TRENI yang kami sediakan di group FACEBOOK KHUSUS. Disana sudah kami siapkan pola-pola marketing bisnis melalui cara digital marketing plus ofline marketing. Ini yang membedakan group kami dengan group lainnya. Kami sangat mengutamakan bimbingan terhadap mitra.
 
 
-* GUNAKAN PAYTREN & FASILITAS LAINNYA
-***
+3. GUNAKAN PAYTREN & FASILITAS LAINNYA
+
 
 Pindahkan semua transaksi Anda menggunakan PAYTREN. Dengan PAYTREN Anda mendapatkan fasilitas Virtual Payment, Virtual Shopping, Virtual Retail dan Virtual Education. Dari setiap transaksi yang Anda lakukan di PAYTREN, Anda akan menerima cashback transaksi pribadi.
 
-* BERBAGI MANFAAT PAYTREN/TRENI
-***
+4. BERBAGI MANFAAT PAYTREN/TRENI
+
 
 Setelah Anda merasakan manfaat dan kemudahan yang Anda dapat dari PAYTREN, Anda ceritakan kepada saudara, teman, tetangga bahkan ke setiap orang agara mereka juga menggunakan PAYTREN.
 
-* NIKMATI CASHBACK
-***
+5. NIKMATI CASHBACK
+
 
 Setelah Anda memilki komunitas yang semakin hari semakin besar, Anda akan menerima cashback dari semua transaki yang dilakukan oleh komunitas yang Anda bangun. Semakin bayak Anda berbagi informasi PAYTREN akan semakin besar komunitas yang terbangun maka semakin besar juga cashback yang Anda dapatkan nantinya.
  
- 
+
+
 Anda Masih Bingung? Tak perlu khawatir!Gabung saja terlebih dahulu. Nantipun seiring berjalannya waktu akan semakin faham jika belajar sambil praktek.Intinya ketika bergabung di TREN-I & melakukan pembelian lisensi paytren bersama kami, Anda akan mendapatkan banyak manfaat dan keuntungan, diantaranya :
 
 1. Dapat lisensi atau akses aplikasi PAYTREN full version u/ memprmudah pembayaran2 kebutuhan sehari2 hanya dgn menggunakan HP. Praktis, effisien, hemat biaya & waktu.
