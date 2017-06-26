@@ -31,11 +31,15 @@ Intinya ketika bergabung di TREN-I & melakukan pembelian lisensi paytren bersama
 
 1. Dapat lisensi atau akses aplikasi PAYTREN full version u/ memprmudah pembayaran2 kebutuhan sehari2 hanya dgn menggunakan HP. Praktis, effisien, hemat biaya & waktu.
 
-![alt text](http://www.paytrenleader.com/wp-content/uploads/2015/01/ATM-PINTAR.png "ATM-PINTAR")
+![alt text](https://www.paytrenleader.com/wp-content/uploads/2015/01/ATM-PINTAR.png "ATM-PINTAR")
 
 2. Dapat poin perdana yg bisa dituker dgn produk-produk yang disediakan TRENI seperti Herbal Habspro, TRENI POWER penghemat BBM, Buku-buku UYM, Smartphone, dan lain-lain sesuai paket yang dipilih.
 
+![alt text](https://www.paytrenleader.com/wp-content/uploads/2014/06/produk-ro-1.jpg "produk-ro-1")
+
 3. Bisa berbelanja di mercant-mercant atau sesama mitra yg bergabung dgn tren-i, tanpa uang cash, hanya melalui HP. Dapat poin & cashback dari setiap belanja.
+
+![alt text](https://www.paytrenleader.com/wp-content/uploads/2015/01/belanja.jpg "belanja")
 
 4. Dapat akses PAYTREN ACADEMY (Pendidikan Digital Paytren) dari Ustadz Yusuf Mansur & Team.
 
