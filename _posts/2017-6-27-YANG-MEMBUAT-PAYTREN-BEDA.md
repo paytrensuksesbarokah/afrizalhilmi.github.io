@@ -3,6 +3,8 @@ layout: post
 title: YANG MEMBUAT PAYTREN BEDA
 ---
 ***
+![alt text](https://raw.githubusercontent.com/Afrizalhilmi/Afrizalhilmi.github.io/master/images/perbedaan-paytren.jpg "perbedaan-paytren")
+
 Ada yg bertanya ke saya, "Kang apa sih perbedaan paytren dengan itu, dengan ini, dll?"
 
 Jawab : Wah afwan saya gak tau, soalnya saya fokus ke Paytren doank, hehehe.
