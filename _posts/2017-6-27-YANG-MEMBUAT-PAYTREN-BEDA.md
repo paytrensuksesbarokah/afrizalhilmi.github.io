@@ -17,13 +17,13 @@ Lagian gak elok banget rasanya kita ngebanding-bandingin apalagi kl sampai sebut
 
 Paling sy sampaikan alasan kenapa sy milih paytren aja ya, sekaligus ngasi beberapa saran untuk pertimbangan memilih bisnis. Simak dan masukkan ke dalam hati masing2 ya. hehehe.
 
-1. Dalam memilih bisnis hal yg sangat penting kita harus tau dulu siapa ownernya, manajemennya dan orang2 yg ada di dalamnya.
+® Dalam memilih bisnis hal yg sangat penting kita harus tau dulu siapa ownernya, manajemennya dan orang2 yg ada di dalamnya.
 
 Paytren alhamdulillah asli milik Indonesia di bawah kepemimpinan Ustadz Yusuf Mansur, yg InsyaAllah semua tau ttg beliau, seorang hafidz Quran, ustadz, Kyai, pengusaha, motivator, pemilik Daarul Quran, ribuan rumah tahfidz, dll.
 
 Didukung oleh para komisaris lainnya seperti Ust. Dr. Syafii Antonio dan Ust. Irfan Syauki Beik Ph.D. yg insyaAllah semua juga udah tau kredibilitas dan keilmuan mereka.
 
-2. Kang yg lain fiturnya udah lengkap lho!
+® Kang yg lain fiturnya udah lengkap lho!
 
 Wih keren.. y Alhamdulillah atuhhh. Walau sebenarnya gak mungkin ada perusahaan bidang multipayment yg bisa langsung komplit, kecuali kl dia kerjasama dengan pihak ketiga, atau mungkin sebelumnya udah punya tp ganti merk. Ketika dibuka jadinya langsung komplit. Alhamdulillah...
 
@@ -31,7 +31,7 @@ Nah kl paytren mah betul2 berproses dr nol banget, tp alhamdulillah trs bergerak
 
 Fiturnya juga banyak perkembangan... skrg di paytren ada fitur sedekahnya, qurbannya, ada inspirasi UYM nya, ada paytren academy, ada paytren messenger, ada ibuk, ada pay by qr, dan lain sebagainya...
 
-3. Dalam memilih bisnis juga harus dilihat gmn lingkungannya, gmn komunitasnya, dll...
+® Dalam memilih bisnis juga harus dilihat gmn lingkungannya, gmn komunitasnya, dll...
 
 Saya pikir soal ini gak perlu dijelasin lagi ya. InsyaAllah sudah pada tau gmn lingkungan di paytren, tp boleh deh sy kasi bocoran misal kebiasaan di kantor pusat :
 
@@ -43,17 +43,17 @@ Saya pikir soal ini gak perlu dijelasin lagi ya. InsyaAllah sudah pada tau gmn l
 
 Termasuk aktivitas member2 nya juga... Kawan2 cek deh IG nya ustadz Yusuf Mansur banyak juga ko info2 dan kegiatan2 paytren di posting ustadz.
 
-4. Yg selanjutnya yg paling penting adalah lengalitas lengkap, halal dan Toyyib. Nah coba deh berapa banyak perusahaan yg sibuk ngurusin legalitas apalagi soal kehalalannya.
+® Yg selanjutnya yg paling penting adalah lengalitas lengkap, halal dan Toyyib. Nah coba deh berapa banyak perusahaan yg sibuk ngurusin legalitas apalagi soal kehalalannya.
 
 Paytren alhamdulillah dah punya legalitas yg komplit, termasuk soal kehalalan itu menjadi yg diutamakan banget oleh Paytren, sampai sibuk bolak balik ke MUI untuk ngurusin itu semua... Paytren sami'na waatho'na sama DSN MUI. Karena tujuan Paytren gak hanya sukses bisnisnya tp juga berkah hidupnya. Alhasil skrg seperti marketing plan, kode etik, dll mengikuti arahan dr DSN MUI. Alhamdulillah...
 
-5. Jgn lupa lihat visi misi dan prospek ke depannya.
+® Jgn lupa lihat visi misi dan prospek ke depannya.
 
 Soal ini sudah pasti akan ada perbedaan apalagi kl dibanding dgn perusahaan milik asing.
 
 Nah Paytren ini wajahnya nasionalis (merah-putih), punya visi misi jadi perusahaan start up asli milik indonesia terkemuka di Dunia, bisa beli2 aset2 asing secara berjamaah, fokus pada kebermanfaatan dan peningkatan ekonomi rakyat, bisa jadi jalan dakwah, ilmu, silaturahim dll...
 
-6. Tp kang yg lain kn gratis beli aplikasinya?
+® Tp kang yg lain kn gratis beli aplikasinya?
 
 Hhmmm... gini saya kasi ilustrasi ya.
 
